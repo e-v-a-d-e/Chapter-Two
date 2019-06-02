@@ -2,7 +2,7 @@
 
 [2] Log line: Oja helps Siwiwa in freeing the Ignoi tribes in captivity and destroys the Doddan Barracks.
 
-Oja has barely made it out of Yenagoa when he gets lured with a Regenerative Facial Recognition camouflage into an ambush by Idiagbon for the expulsion and deportation of his brother in-law Leo Frobenius from the UEE High Commission, for his role in the Umaru affair.  
+Our lead character has barely made it out of Yenagoa when he gets lured with a Regenerative Facial Recognition camouflage into an ambush by Idiagbon for the expulsion and deportation of his brother in-law Leo Frobenius from the UEE High Commission, for his role in the Umaru affair.  
 
 Captured and jailed, he teams up with a synthetic deep mind by the name Robin Grey alongside other bionics in organizing a Kirikiri Incarcerator revolt. Although the escape was successful for the many of the detained, the intel mastermind, Mr Grey did not make it out alive but again not without giving their captors a grandstand mayhem of a diplomatic “baggage” or should we say “barrage”.  
 
